@@ -24,13 +24,6 @@ Telegram公告频道: [https://t.me/speed17push](https://t.me/speed17push)
 特点:
 1. 老板有多个机场
 2. 多语言
-#### 4. 速蛙云
-[http://faster.goodfrog1.net](http://faster.goodfrog1.net)  
-特点:
-1. 大机场
-2. 提供P站帐号
-3. 常被攻击
-4. 广告做的好
 #### 5. 魅影|Maying
 [https://maying.co](https://maying.co)  
 特点:
