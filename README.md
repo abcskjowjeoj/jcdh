@@ -11,7 +11,8 @@ Telegram公告频道: [https://t.me/speed17push](https://t.me/speed17push)
 4. 解锁流媒体：Netflix、BBC iPlayer、Hulu、Amazon Prime Video、Disney+、HBO以及YouTube Premium、Spotify
 5. 支持的设备：Windows电脑、Mac电脑、iOS、安卓、Linux、路由器、安卓电视 
 6. 查资料、学英语、上网课、留学必备 
-7. 新加坡华人创建
+7. ChatGPT机场，很多节点可以上ChatGPT  
+8. 新加坡华人创建
 #### 2. 薯条|CNIX
 [https://垃圾机场.com/](https://垃圾机场.com/)  
 特点:
