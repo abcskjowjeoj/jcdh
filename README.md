@@ -13,20 +13,3 @@ Telegram公告频道: [https://t.me/speed17push](https://t.me/speed17push)
 6. 查资料、学英语、上网课、留学必备 
 7. ChatGPT机场，很多节点可以上ChatGPT  
 8. 新加坡华人创建
-#### 2. 薯条|CNIX
-[https://垃圾机场.com/](https://垃圾机场.com/)  
-特点:
-1. 老牌机场
-2. 文案机场，文案堪比阿里PPT技术
-3. 经常被攻击
-4. 价格略高
-#### 3. 奶昔|Nextally
-[https://nexitallysafe.com/](https://nexitallysafe.com/)  
-特点:
-1. 老板有多个机场
-2. 多语言
-#### 4. 魅影|Maying
-[https://maying.co](https://maying.co)  
-特点:
-1. 老牌机场
-2. 性价比一般
