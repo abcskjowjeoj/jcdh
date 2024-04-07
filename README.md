@@ -1,7 +1,6 @@
 ### 机场导航|机场推荐|梯子推荐|VPN|加速器|Netflix解锁|科学上网|翻墙代理|VPN导航|科学上网  
-#### 1. Speed17|放心云 (推荐)
-[备用1: https://fxyjs.fun (正常)](https://fxyjs.fun/#/register?code=SXFYb4gE)  
-[备用2: https://放心云.com (正常)](https://放心云.com/#/register?code=SXFYb4gE)  
+#### 1. Speed17|放心云 (推荐)  
+[地址导航: https://speed17.net (正常)]地址(https://speed17.net/#/register?code=SXFYb4gE)  
 [永久地址: https://speed17.com (被墙，需挂梯子)](https://speed17.com/#/register?code=SXFYb4gE)  
 Telegram公告频道: [https://t.me/speed17push](https://t.me/speed17push)  
 特点：
