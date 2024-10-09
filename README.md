@@ -11,4 +11,5 @@ Telegram公告频道: [https://t.me/speed17push](https://t.me/speed17push)
 5. 支持的设备：Windows电脑、Mac电脑、iOS、安卓、Linux、路由器、安卓电视 
 6. 查资料、学英语、上网课、留学必备 
 7. ChatGPT机场，很多节点可以上ChatGPT  
-8. 新加坡华人创建
+8. 新加坡华人创建，很稳
+9. 支持TikTok，有固定家庭宽带IP，比如台湾🇹🇼、泰国🇹🇭、越南🇻🇳、韩国🇰🇷、印尼🇮🇩
